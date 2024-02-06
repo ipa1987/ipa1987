@@ -9,8 +9,6 @@
 
 - 👨‍💻 All of my projects are available at [www.idrispatel.co.uk](www.idrispatel.co.uk)
 
-- 📫 How to reach me **idris.patel1987@outlook.com**
-
 - 📄 Know about my experiences [https://www.linkedin.com/in/idris1987/](https://www.linkedin.com/in/idris1987/)
 
 <h3 align="left">Connect with me:</h3>
