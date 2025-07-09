@@ -7,7 +7,7 @@
 
 - 🤝 I’m looking for help with [Work Employment and Jobs within Coding](https://www.linkedin.com/posts/activity-7129825049192075264-KZkR?utm_source=share&utm_medium=member_desktop)
 
-- 👨‍💻 All of my projects are available at [www.idrispatel.co.uk](www.idrispatel.co.uk)
+- 👨‍💻 All of my projects are available at [www.idrispatel.co.uk](https://www.idrispatel.co.uk)
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/idris1987/](https://www.linkedin.com/in/idris1987/)
 
